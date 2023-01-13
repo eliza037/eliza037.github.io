@@ -1,25 +1,25 @@
 # eliza037.github.io
-*Syri Elizabeth L. Santiago*
 
-*na-tapilok*
+*s. santiago*
 
-
-
+LG **CAMPION**
 
 
+`Academic Validation 2023`
 
-
-
-
-![https://www.meme-arsenal.com/memes/897ed244b2cd6d99320a7ae959ede575.jpg](https://user-images.githubusercontent.com/122416454/212214564-8e40c0e6-a121-465d-9e6b-19fb2766fed8.png)
+![https://i.pinimg.com/originals/4f/ca/e8/4fcae80cabb54ef0a7e9e486af9488a7.png](https://user-images.githubusercontent.com/122416454/212218527-8628e20d-0780-41eb-837f-9fdc5436e3dd.png)
 
 
 
+![https://i.pinimg.com/736x/99/58/2e/99582e6a48eba59c47a687d47f0549f6.jpg](https://user-images.githubusercontent.com/122416454/212218724-9d92897e-a6c3-4ae8-b117-e545244a90c7.png)
 
 
 
-
-| Meal | Monday |
+| Grades | 2023 |
 | ----------- | ----------- |
-| Breakfast| Cheese |
-| Lunch | Milk |
+| A+ | 😍 |
+| B+ | 🤔 |
+| C+ | 💀 |
+
+
+
