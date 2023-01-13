@@ -11,10 +11,6 @@ LG **CAMPION**
 
 
 
-![https://i.pinimg.com/736x/99/58/2e/99582e6a48eba59c47a687d47f0549f6.jpg](https://user-images.githubusercontent.com/122416454/212218724-9d92897e-a6c3-4ae8-b117-e545244a90c7.png)
-
-
-
 | Grades | 2023 |
 | ----------- | ----------- |
 | A+ | 😍 |
