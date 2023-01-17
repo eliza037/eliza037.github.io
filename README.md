@@ -7,7 +7,11 @@ LG **CAMPION**
 
 `Academic Validation 2023`
 
-![https://i.pinimg.com/originals/4f/ca/e8/4fcae80cabb54ef0a7e9e486af9488a7.png](https://user-images.githubusercontent.com/122416454/212218527-8628e20d-0780-41eb-837f-9fdc5436e3dd.png)
+Academic Validation is something that makes you feel ✨useful✨ through academic achievement. 
+
+How'd you get that perhaps? 😏
+
+
 
 
 
